@@ -1,1 +1,1 @@
-# stock_bitcoin
+# We gonna be rich!
